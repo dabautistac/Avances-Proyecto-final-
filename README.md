@@ -27,7 +27,7 @@ Sandilands, R. J. (2015). La Misión del Banco Mundial a Colombia de 1949, y las
  
 Álvarez, A., Guiot, A. M., & Hurtado, J. (2017). The Quarrel of Development Experts: Lauchlin Currie and Albert O. Hirschman in Colombia. Documento CEDE No. 39, Julio. Facultad de Economía, Universidad de los Andes.
  
-Adelman, J. (2008). Observando a Colombia: Albert O. Hirschman y la Economía del Desarrollo. Revista Desarrollo y Sociedad, 62, 1-37.Adelman, J. (2017).  El idealista pragmático: la odisea de Albert O. Hirschman. Ediciones Uniandes. 
+Adelman, J. (2008). Observando a Colombia: Albert O. Hirschman y la Economía del Desarrollo. Revista Desarrollo y Sociedad, 62, 1-37. Adelman, J. (2017).  El idealista pragmático: la odisea de Albert O. Hirschman. Ediciones Uniandes. 
  
 Semana 9 al 13 de octubre: 
 
