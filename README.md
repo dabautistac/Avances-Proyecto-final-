@@ -15,7 +15,7 @@ Contenido realizado en la herramienta Storify con contenidos de Twitter y YouTub
 
 Cronograma:
 
-Semana del 11 al 15 septiembre: Avances en el marco teórico. Elección 3 textos académicos relacionados  con Humanidades Digitales. (En proceso)
+Semana del 11 al 15 septiembre: Avances en el marco teórico. Elección 3 textos académicos relacionados  con Humanidades Digitales. (En proceso)
 
 Elección de bibliografía comentada de los elementos de los libros que voy a utilizar para mi proyecto en StoryMaps y Visualización en D3. 
 
